@@ -1,0 +1,4 @@
+- I am the best Polish War Criminal
+- Totally not comitting war crimes (i swear)
+- I am the CEO of racism HQ and vice president of Homophobia Ltd
+- learning python cuz im retarded :P
